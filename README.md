@@ -26,6 +26,6 @@ I'm always eager to connect with fellow developers, tech enthusiasts, and potent
 
 - 📧 Email: gsrtgyanu719@gmail.com
 - 📱 LinkedIn: [Connect with me](https://www.linkedin.com/in/gyanendra-singh-76453298/)
-- 🐦 Twitter: [@YourTwitterHandle](https://twitter.com/iamgyan719)
+- 🐦 Twitter: [@gyan](https://twitter.com/iamgyan719)
 
 Let's code, innovate, and learn together! 🌟
